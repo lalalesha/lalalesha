@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lalalesha
+- 👀 I’m interested in Python. After entering college, I will study JavaScript and HTML.
+- 🌱 I’m currently learning in school.
+- 📫 How to reach me t.me/lalalesha or vk.com/lalalesha4
+- ⚡ Fun fact: I like to cook)
